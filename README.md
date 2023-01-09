@@ -4,7 +4,7 @@
 
 ##### 여러분
 
-![](https://www.google.com/url?sa=i&url=https%3A%2F%2Fwww.donga.com%2Fnews%2FInter%2Farticle%2Fall%2F20220128%2F111500322%2F2&psig=AOvVaw1o4Y5cY9GeBNg9EQlFfQBW&ust=1673325441366000&source=images&cd=vfe&ved=0CBAQjRxqFwoTCPD2zJbVufwCFQAAAAAdAAAAABAE)
+![](https://dimg.donga.com/wps/NEWS/IMAGE/2022/01/28/111500268.2.jpg)
 
 ----
 
